@@ -1,1 +1,2 @@
-# 3j-2projeto
+# Projeto 3_Tri
+HENRY CALLEBY SEABRA DE ALMEIDA N 38
